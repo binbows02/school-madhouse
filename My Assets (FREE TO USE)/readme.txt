@@ -1,0 +1,1 @@
+For my assets you are free to use! Please properly credit me (By using a link) if you do so :D
